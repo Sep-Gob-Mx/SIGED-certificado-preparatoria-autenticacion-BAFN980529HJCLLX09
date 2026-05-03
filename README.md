@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-BAFN980529HJCLLX09
+BAFN980529HJCLLX09
